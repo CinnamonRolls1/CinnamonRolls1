@@ -1,3 +1,3 @@
 ### hi :)
 
-More about me at [chin.bio](chin.bio).
+More about me at [chin.bio](www.chin.bio).
